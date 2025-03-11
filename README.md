@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ppilha
-- 👀 I’m interested in guilds and airdrops
-- 🌱 I’m currently learning web3
-- 💞️ I’m looking to collaborate on guilds
+- 👀 I’m interested in new techs 
+- 🌱 I’m currently learning ...its all .
+- 💞️ I’m looking to collaborate on new techs 
 - 📫 How to reach me fishcoin79@gmail.com
 - 😄 Pronouns: pilha
 - ⚡ Fun fact: am I not a little old for all this?
